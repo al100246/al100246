@@ -2,9 +2,9 @@
 - 👀 I’m interested in art. piano, basketball and a lot more!
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me stalker alert
+- 📫 How to reach me uhm stalker alerttt
 - 😄 Pronouns: 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I am a person
 
 <!---
 al100246/al100246 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
